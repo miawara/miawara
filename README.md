@@ -1,1 +1,3 @@
-`network protocol error`<br>i deleted all my remote github repo branches
+`network protocol error`<br>
+human full-slop, code-first, text-editor-user engineer 
+
