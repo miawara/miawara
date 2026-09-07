@@ -1,1 +1,1 @@
-when you fall asleep you see new things, when I fall asleep I taste new things
+the idiot that invented doors and windows apparently never heard of a hammer
