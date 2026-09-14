@@ -1,1 +1,1 @@
-the idiot who invented doors and windows apparently never heard of a hammer
+the guy who invented doors and windows apparently has never heard of a hammer
